@@ -1,2 +1,2 @@
-# learning-
+# learning
 new to github but one will be pro for sure xd.... 
